@@ -3,6 +3,13 @@
 
 Scale of the project activity Small Scale
 
+WTG ID No: SEL/1250/2011-12/2436
+_________
+No & Capacity Commissioning Date
+___________
+1 x 1.25 MW /25/01/2012
+_________
+
 Project participants Green Shift Climate Solutions (Representor)
 Naroda Enviro Projects Ltd (Project Proponent)
 
